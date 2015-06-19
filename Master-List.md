@@ -12,3 +12,4 @@
 + Mari Pool 6/16/2015
 + Samiha Azra 6/18/2015
 + Jennifer Guerra 6/19/2015
++ Sally Hsieh 6/19/2015
